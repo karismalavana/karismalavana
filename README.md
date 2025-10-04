@@ -7,5 +7,4 @@
 
 - 😄 Pronouns: She/Her
 
-- 🕺 Fun fact: I’m part of Duke’s **Bhangra Dance Team** and enjoy exploring how **artistic expression** can intersect with technology!
-
+- 🕺 Fun fact: I’m part of Duke’s **Bhangra Dance Team** 
